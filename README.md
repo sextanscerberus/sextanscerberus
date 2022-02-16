@@ -14,4 +14,6 @@
 
 ⚡  ***Fun fact***: I love music🎼, soccer⚽️, and anime/manga🍜
 
+📍 ***Currently on*** Caracas, Venezuela🇻🇪
+
 **飛べ**
