@@ -1,4 +1,4 @@
-![Banner](https://pbs.twimg.com/profile_banners/1068687650398371842/1645637202/600x200)
+![Banner](https://pbs.twimg.com/profile_banners/1068687650398371842/1623470386/1500x500)
 # *Hey guys, I'm Klay R. Amestica⛩*
 ## *I'm a Junior Web Developer💻*
 
